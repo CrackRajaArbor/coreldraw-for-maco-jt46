@@ -1,4 +1,4 @@
-# 
+# Get the ultimate CorelDRAW for macOS plugin with premium Plugin for CorelDRAW for macOS - export presets and 3D rendering. Featuring export presets and 3D rendering, it's the best
 
 
 
